@@ -1,5 +1,5 @@
 
-![MasterHead]([https://1.bp.blogspot.com/-7A4WynwLsMw/XbBpCXG8fHI/AAAAAAAAMt4/uOa1bpLskYgrwGbllhSu2SDj_Mig8SXJQCLcBGAsYHQ/s1600/2000_600px.gif](https://www.linkedin.com/in/muzamil-abbass-6180141b8/overlay/background-image/))
+![MasterHead](https://media.licdn.com/dms/image/D4D16AQHsXoeapFx2Wg/profile-displaybackgroundimage-shrink_350_1400/0/1698268547730?e=1704931200&v=beta&t=1nsVAvBAO42aYatABn5VqEo6Y3Zg6bFqim73zqL4oBU)
 
 
 <h1 align="center">Hi 👋, I'm Muzamil Abbass</h1>
